@@ -1,4 +1,4 @@
-# 
+# updated Scripts for plants vs brainrots offers the most advanced plants vs brainrots Script, with auto-heal and teleport. Perfect for dominating any
 
 
 
